@@ -1,6 +1,6 @@
 # 地鼠机场官网地址
 
-最新地址：[nbvpn.top](https://nbvpn.top/#/register?code=HOj8EROY)
+最新地址：[nbvpn.top](https://nbvpn.top/#/register?code=KPL0DDdJ)
 
 ## 地鼠机场介绍
 
